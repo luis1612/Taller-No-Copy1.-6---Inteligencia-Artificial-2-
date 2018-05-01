@@ -1,0 +1,2 @@
+# Taller-No-Copy1.-6---Inteligencia-Artificial-2-
+LUIS IBARGUEN - ANDRES VELEZ - ALEJANDRO GIRALDO - YEISON CASTRO 
